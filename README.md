@@ -1,0 +1,1 @@
+# per-reseller-store-godaddy
